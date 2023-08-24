@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @aazukazu
+- 👀 I’m interested in physics
+- 🌱 I’m currently on my senior high school
